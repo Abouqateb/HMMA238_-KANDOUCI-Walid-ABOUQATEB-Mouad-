@@ -1,1 +1,1 @@
-# HMMA238 (ABOUQATEB Mouad & KANDOUCI Walid & SAHBANE Abdesstar)
+# HMMA238 (ABOUQATEB Mouad & KANDOUCI Walid)
